@@ -1,16 +1,13 @@
-## Hi there 👋
+25 yo - french but talk english too- random user of ponytown
 
-<!--
-**Sauketz/sauketz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ok for cuddles, roleplay and interaction in general !
+I roleplay ship only with adult as I am one and are unconfortable to rp that with minor. Platonic rp are okay c:
+DNI proshipper, magga supporter ect
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My main fandoms are : Helluva Boss, Warrior cats, Star Stable Online
+My secondary fandoms are : Hazbin hotel, Bluey, Epic the Musical, The Amazing Digital Circus, Pokemon
+
+Stolas is my huge kinnies.
+
+Might add more later on ! 
