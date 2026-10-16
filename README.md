@@ -11,9 +11,10 @@ DNI proshipper, magga supporter ect
 --------------------------------------------------------------------
 
 My main fandoms are : Helluva Boss, Warrior cats, Star Stable Online
+
 My secondary fandoms are : Hazbin hotel, Bluey, Epic the Musical, The Amazing Digital Circus, Pokemon
 
-Stolas is my huge kinnies.
+Stolas is my huge kinnies. 
 
 --------------------------------------------------------------------
 Might add more later on ! 
